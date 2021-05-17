@@ -6,8 +6,7 @@
 
 • You can find me on the following social network below:
   
-• 
-![image](https://user-images.githubusercontent.com/84187530/118499430-4d03ae00-b6fd-11eb-8854-f1f8e28ddf85.png)   Instagram: anabiamoura17
+• Instagram: anabiamoura17
 <!--
 **anabialopes2503/anabialopes2503** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
