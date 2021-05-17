@@ -7,6 +7,8 @@
 • You can find me on the following social network below:
   
 • Instagram: anabiamoura17
+
+• Email: anabeatrizmoura141516@gmail.com
 <!--
 **anabialopes2503/anabialopes2503** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
